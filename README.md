@@ -1,0 +1,1 @@
+# murnikan-kesalahan-dalam-teks
